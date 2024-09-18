@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **Web Developing**
 
-- 📫 How to reach me **misterhayrullo@gmail.com**
+- 📫 How to reach me **khuliostudio@gmail.com**
 
 - ⚡ Fun fact **I'm mature boy**
 
